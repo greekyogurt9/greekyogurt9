@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @greekyogurt9
 - 👀 I’m interested in learning something new everyday.
-- 🌱 I’m currently learning python, product management, piano, hindustani classical vocals 
+- 🌱 I’m currently learning to keep up with everyday new technology improvements and application in my job
 - 💞️ I’m looking to collaborate on ineresting projects that involve product sense and coading skills
 - 📫 How to reach me here ---> https://www.linkedin.com/in/ankitaabhavsar456/
 - 😄 Pronouns: she
